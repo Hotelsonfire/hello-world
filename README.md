@@ -1,4 +1,4 @@
 # hello-world
 Just another repository
-Iam an aspiring world changer.
-I am the influencer that will influence influencers.
+I am an aspiring world traveler. 
+I believe in the power of self ownership.
